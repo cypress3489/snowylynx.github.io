@@ -1,1 +1,0 @@
-# snowylynx.github.io
